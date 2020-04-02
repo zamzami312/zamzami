@@ -1,0 +1,2 @@
+# zamzami
+ini akunku
